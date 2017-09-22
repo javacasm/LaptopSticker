@@ -1,4 +1,4 @@
-# Laptop Sticker
+# Laptop Stickers
 
 Sticker for laptop and boxes
 
