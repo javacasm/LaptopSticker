@@ -46,6 +46,8 @@ Sticker for laptop and boxes
 
 ![IronMan](https://n1.sdlcdn.com/imgs/a/5/y/Trends-on-Wall-Iron-Man-SDL969104496-1-5c5bc.jpg)
 
+![IronMan Vitruvio](http://www.filmmagazinedigital.com/wp-content/uploads/2013/09/vitruviron_man_by_joe_wright-d5n4c10-298x300.jpg)
+
 ### The Avengers
 
 ![Avenger logo](http://moziru.com/images/symbol-clipart-avenger-4.jpg)
@@ -75,3 +77,13 @@ Sticker for laptop and boxes
 ### FPGA Wars
 
 ![FPGA Wars](https://lh6.googleusercontent.com/proxy/LMwytc2eJv-zIkmEpZAG7rRQXl1leZFxK-iMxwcahNWd7kk7IKnhz6KWd7E63vTawq_LN4s2AL1MkBxE5AgiQ7V9Pv4wtaT0krc48pPWeeHqmUTUZxdljT_JFzHYsEnJZqyK-G48WiJvq1QCgNj0D81-5nLOtRyok1i-25KN0JnlPzXNo0Ad08nlhrTTajpePDK1160=w5000-h5000)
+
+### Leonardo
+
+![Vitruvio](https://thumbs.dreamstime.com/z/vitruvian-man-leonardo-da-vinci-vector-illustration-35721968.jpg)
+
+![Vitrubio](http://www.visitsitaly.com/people/da_vinci/images/da-vinci_man_drawing.jpg)
+
+![volador](https://media.licdn.com/mpr/mpr/AAEAAQAAAAAAAArbAAAAJGJmNWIwNDVmLThkZjktNDU4Ny05OGVmLTQxNTJlMzdjNDRkNQ.jpg)
+
+![Ala](http://i2.cdn.cnn.com/cnnnext/dam/assets/111101110323-da-vinci-glider-horizontal-large-gallery.jpg)
