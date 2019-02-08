@@ -64,15 +64,7 @@ Sticker for laptop and boxes
 
 ![Shield](https://i.pinimg.com/originals/83/67/02/836702744e2b075c7ffb7b728c0dc704.jpg)
 
-### Stark Industries
 
-![stark](http://beststickers.net/image/cache/catalog/products/domed/stark-industries-iron-man-tony-3d-domed-epoxy-resin-sticker-decal-round-emblem-1400x800.jpg)
-
-![Stark](http://beststickers.net/image/cache/catalog/products/decals/stark-industries-iron-man-tony-3d-domed-epoxy-resin-sticker-decal-emblem-dec2-1400x800.jpg)
-
-![Stark industries](https://static.artfire.com/uploads/product/3/833/20833/8620833/8620833/large/stark_industries_-_iron_man_vinyl_decal_0a5a9ef8.jpg)
-
-![Stark industries](http://beststickers.net/image/cache/catalog/products/domed/stark-industries-iron-man-tony-3d-domed-epoxy-resin-sticker-decal-emblem-1400x800.jpg)
 
 ### FPGA Wars
 
@@ -87,3 +79,19 @@ Sticker for laptop and boxes
 ![volador](https://media.licdn.com/mpr/mpr/AAEAAQAAAAAAAArbAAAAJGJmNWIwNDVmLThkZjktNDU4Ny05OGVmLTQxNTJlMzdjNDRkNQ.jpg)
 
 ![Ala](http://i2.cdn.cnn.com/cnnnext/dam/assets/111101110323-da-vinci-glider-horizontal-large-gallery.jpg)
+
+### Stark Industries
+
+![stark](http://beststickers.net/image/cache/catalog/products/domed/stark-industries-iron-man-tony-3d-domed-epoxy-resin-sticker-decal-round-emblem-1400x800.jpg)
+
+![Stark](http://beststickers.net/image/cache/catalog/products/decals/stark-industries-iron-man-tony-3d-domed-epoxy-resin-sticker-decal-emblem-dec2-1400x800.jpg)
+
+![Stark industries](https://static.artfire.com/uploads/product/3/833/20833/8620833/8620833/large/stark_industries_-_iron_man_vinyl_decal_0a5a9ef8.jpg)
+
+![Stark industries](http://beststickers.net/image/cache/catalog/products/domed/stark-industries-iron-man-tony-3d-domed-epoxy-resin-sticker-decal-emblem-1400x800.jpg)
+
+### Oscorp
+
+### Corporacion Darpha
+
+### Wayne enterprises
